@@ -2,7 +2,7 @@
 - 👀 I’m interested in webdevelopment
 - 🌱 I’m currently learning webdevelopment
 - 💞️ I’m looking to collaborate on the interesting projects
-- 📫 You can reach out to me via email-jkrowling7702@gmail.com and email-washeem2002@gmail.com
+- 📫 You can reach out to me via email  :- jkrowling7702@gmail.com and washeem2002@gmail.com
 - 📫 You can reach out to me via Linkdin-https://www.linkedin.com/in/mohd-washeem-7a9b16225/
   
 
